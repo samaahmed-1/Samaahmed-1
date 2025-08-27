@@ -1,4 +1,4 @@
-# Hi, I'm Sama Ahmed 👋
+# Hi, I'm Sama Ahmed A Data Anlyst  👋
 
 Welcome to my GitHub profile! Here are some of my projects:
 
